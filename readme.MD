@@ -1,0 +1,3 @@
+#plain dosa
+
+* rice flour
